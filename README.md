@@ -1,1 +1,1 @@
-https://vilianzorn.github.io/project/
+https://vilianzorn.github.io/DIPLOM/
